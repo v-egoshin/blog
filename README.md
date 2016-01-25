@@ -1,0 +1,2 @@
+# vegoshin.github.io
+Blog
